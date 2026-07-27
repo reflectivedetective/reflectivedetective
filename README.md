@@ -5,7 +5,7 @@
 Nor do I want to hear "Rodger and Glisten are related," because no, they're not. Thank you ! ᢉ𐭩
 
 <p align="center">
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/9fa1aa77-4cc8-4144-aef5-4716fdd7143c" />
+<img width="170" height="35" alt="image" src="https://github.com/user-attachments/assets/9fa1aa77-4cc8-4144-aef5-4716fdd7143c" />
   
 <p align="center">
 𓏲﹕  Glisten or Benrey   ﹕⸝⸝
