@@ -8,4 +8,4 @@ Nor do I want to hear "Rodger and Glisten are related," because no, they're not.
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/9fa1aa77-4cc8-4144-aef5-4716fdd7143c" />
 <p align="center">
 
-<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/39859fa0-c57e-4fe6-b519-4879c0ad778b" />
+<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/e79db38c-8cac-453a-b379-aee07a567032" />
