@@ -15,7 +15,7 @@ Nor do I want to hear "Rodger and Glisten are related," because no, they're not.
 
 <p align="center">
 
-<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/e79db38c-8cac-453a-b379-aee07a567032" /> 
+<img width="800" alt="image" src="https://github.com/user-attachments/assets/e79db38c-8cac-453a-b379-aee07a567032" /> 
 <p align="center">
 <img width="150" height="30" alt="image" src=https://64.media.tumblr.com/6e96ee45610464d787aa9bf839b04fba/73f2b53a7e01e67f-08/s1280x1920/bab7bd62600e79969c0dc1f7cf925d91134237bf.gifv />
 
