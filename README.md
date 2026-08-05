@@ -20,7 +20,7 @@ Nor do I want to hear "Rodger and Glisten are related," because no, they're not.
 <img width="150" height="30" alt="image" src=https://64.media.tumblr.com/6e96ee45610464d787aa9bf839b04fba/73f2b53a7e01e67f-08/s1280x1920/bab7bd62600e79969c0dc1f7cf925d91134237bf.gifv />
 
 <p align="center">
-˖ ᡣ𐭩 ⊹ ࣪ More extensive DNI on my main github, @benreyfreeman, otherwise I block freely. ౨ৎ˚₊
+˖ ᡣ𐭩 ⊹ ࣪ More extensive DNI on my main github, @benreyfreeman, otherwise I block freely. Pro/Dark/Lolicon/Map youre all the same to me, die please! ౨ৎ˚₊
   
   <p align="center">
 <img width="80" height="25" alt="image" src=https://64.media.tumblr.com/e349696cd666c77dc6069c1c4530c9d4/ff587a6282f56864-29/s75x75_c1/87b88a46126af8e9ae977a830e776a1528ac2015.gifv />
