@@ -1,5 +1,5 @@
 <p align="center">
-. ݁ ˖🪞˚. Do not talk about JewerlyBox/GlitterHugs or other Glisten themed ships around me, with the exception of RefDet, I genuinely do not want to hear it. They don't bother me, but I'm not a fan of them nor the people.
+. ݁ ˖🪞˚. Do not talk about JewerlyBox/GlitterHugs or other Glisten themed ships around me, with the exception of RefDet! I don’t mind the ships but I have no reason to want to discuss any of them. 
 
 <p align="center">
 Nor do I want to hear "Rodger and Glisten are related," because no, they're not. Thank you ! ᢉ𐭩
