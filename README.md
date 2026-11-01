@@ -1,6 +1,6 @@
 <p align="center">
 . ݁ ˖🪞˚. Do not talk about JewerlyBox/GlitterHugs or other Glisten themed ships around me, with the exception of RefDet or ShiningArmor! I don’t mind the ships but I have no reason to want to discuss any of them, for I have had rough interacts w/fans! 
-+ This also goes for most Het/Straight ships, especially any male toon x vee ships. The only exception being the hetgem SoulBasket! 
++ This also goes for most Het/Straight ships, especially any male toon x vee ships. The only exception being the hetgem SoulBasket! He/him bassie and he/him vee is canon to me btw :p
 
 <p align="center">
 Nor do I want to hear "Rodger and Glisten are related," because no, they're not. Thank you ! ᢉ𐭩
