@@ -33,7 +33,15 @@ Nor do I want to hear "Rodger and Glisten are related," because no, they're not.
 <img width="80" height="25" alt="image" src=https://64.media.tumblr.com/d34b25ca505365d2f4a0ad771147955a/d60ae68110501159-ea/s75x75_c1/4239e3a994f1c1e3bc0b319f646ec3033ca326fa.gifv />
     
 <div align="center">
-  
+
+<img width="632" height="36" alt="image" src="https://github.com/user-attachments/assets/a6d4fae0-5bfa-485a-b0db-99645a769a48" />
+
 Ponytown's one and only Glisten! Thanks to [PT-Hall-Of-Fame!](https://github.com/pt-hall-of-media)
+
+<img width="400" height="29" alt="image" src="https://github.com/user-attachments/assets/c173b961-f079-498b-8e97-b51555936476" />
+
+And thanks to [Ponytowns-Treats!](https://github.com/ponytowns-treats)
+
+
 
 <img width="800" alt="image" src="https://github.com/user-attachments/assets/2207b017-e157-4136-b5f4-bbd60eba3dc3" />
