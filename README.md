@@ -1,13 +1,15 @@
 <p align="center">
-. ݁ ˖🪞˚. Do not talk about JewerlyBox/GlitterHugs or other Glisten themed ships around me, with the exception of RefDet or ShiningArmor! I don’t mind the ships but I have no reason to want to discuss any of them, for I have had rough interacts w/fans! However I don't mind if you sit around me w/those characters!! :D
+. ݁ ˖🪞˚. Do not talk about Glisten themed ships around me, with the exception of RefDet or ShiningArmor! I don’t mind the ships but I have no reason to want to discuss any of them, for I have had rough interacts w/fans, I don't mind being friends w/others who ship them though! I also don't mind if you sit around me w/those characters!! :D
 
   <p align="center">
- This also goes for most Het/Straight ships, especially any male toon x vee ships. The only exception being the hetgem SoulBasket! He/him bassie and he/him vee is canon to me btw :p
+ This also goes for most Het/Straight ships(sorry), especially any male toon x vee ships. The only exception being the hetgem SoulBasket! He/him bassie and he/him vee is canon to me btw :p
 
 <p align="center">
-Nor do I want to hear "Rodger and Glisten are related," because no, they're not. Thank you ! ᢉ𐭩
+I do not want to hear "Rodger and Glisten are related," because no, they're not. Thank you ! ᢉ𐭩 
 
 <p align="center">
+ ── .✦
+
 <img width="170" height="35" alt="image" src="https://github.com/user-attachments/assets/9fa1aa77-4cc8-4144-aef5-4716fdd7143c" />
   
 <p align="center">
@@ -43,6 +45,11 @@ Ponytown's one and only Glisten! Thanks to [PT-Hall-Of-Fame!](https://github.com
 <img width="400" height="29" alt="image" src="https://github.com/user-attachments/assets/c173b961-f079-498b-8e97-b51555936476" />
 
 And thanks to [Ponytowns-Treats!](https://github.com/ponytowns-treats)
+
+˚₊ · »-♡→
+
+While youre here ! Sign this ⤷ [Strawpage!](https://refdet.straw.page) ˎˊ or [Atabook!](https://benreyvirus.atabook.org/)
+
 
 
 
